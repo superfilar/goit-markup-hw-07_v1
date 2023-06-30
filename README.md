@@ -1,1 +1,1 @@
-Zadanie domowe hw06
+Zadanie domowe hw07
